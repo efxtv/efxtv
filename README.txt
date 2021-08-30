@@ -1,6 +1,8 @@
 --------------------------------
 PLEASE SUBSCRIBE ANC CONTACT US
 --------------------------------
+Blogger  : https://bit.ly/3t1RrrM
+
 FACEBOOK : https://bit.ly/3mL6cOg
 
 INSTAGRA : https://bit.ly/3ysTm9M
