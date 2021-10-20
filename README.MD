@@ -1,7 +1,7 @@
 --------------------------------
 PLEASE SUBSCRIBE ANC CONTACT US
 --------------------------------
-Blogger  : https://uk2blogger.blogspot.com/
+<pre>Blogger  : https://uk2blogger.blogspot.com/
 
 FACEBOOK : https://www.facebook.com/TechEFXTV
 
@@ -13,14 +13,15 @@ GITHUB   : https://github.com/efxtv/
 
 PINTHERE : https://in.pinterest.com/efxtv/
 
-TUMBLR   : https://efxtv.tumblr.com/
+TUMBLR   : https://efxtv.tumblr.com/</pre>
 
---------------------------------
 
-Please support : 
-# paypal.me/efxtv  🤝 
+---------------------------------------
+PLEASE HELP AND SUPPORT BY DONATING US: 
+---------------------------------------
+<pre># paypal.me/efxtv  🤝 
                                             
 # 7503453371@ybl  🤝 
                                           
 
-                             🤝 Any small amount will be appreciated🤝
+                             🤝 Any small amount will be appreciated🤝</pre>
