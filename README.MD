@@ -13,7 +13,9 @@ GITHUB   : https://github.com/efxtv/
 
 PINTHERE : https://in.pinterest.com/efxtv/
 
-TUMBLR   : https://efxtv.tumblr.com/</pre>
+TUMBLR   : https://efxtv.tumblr.com/
+
+Youtube  : https://www.youtube.com/c/EFXTVE</pre>
 
 
 ---------------------------------------
