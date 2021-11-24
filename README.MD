@@ -17,7 +17,9 @@ TUMBLR   : https://efxtv.tumblr.com/
 
 Youtube  : https://www.youtube.com/c/EFXTVE
 
-Backup   :https://www.youtube.com/channel/UCuD1Wfm3zfiGpHyv3yUL41Q</pre>
+Backup   : https://www.youtube.com/channel/UCuD1Wfm3zfiGpHyv3yUL41Q
+
+Hindi    : https://www.youtube.com/channel/UCFN3nMftNABqOKBNRPeBXYA</pre>
 
 
 ---------------------------------------
