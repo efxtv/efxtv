@@ -15,7 +15,9 @@ PINTHERE : https://in.pinterest.com/efxtv/
 
 TUMBLR   : https://efxtv.tumblr.com/
 
-Youtube  : https://www.youtube.com/c/EFXTVE</pre>
+Youtube  : https://www.youtube.com/c/EFXTVE
+
+Backup   :https://www.youtube.com/channel/UCuD1Wfm3zfiGpHyv3yUL41Q</pre>
 
 
 ---------------------------------------
