@@ -23,11 +23,6 @@ Hindi    : https://www.youtube.com/channel/UCFN3nMftNABqOKBNRPeBXYA</pre>
 
 
 ---------------------------------------
-PLEASE HELP AND SUPPORT BY DONATING US: 
+India :  7503453371@ybl<br />
+<a href="https://paypal.me/efxtv"><img src="https://raw.githubusercontent.com/efxtv/efxtv/master/assets/donate-efx-tv.png" alt="Paypal" width="125" height="40"></a>
 ---------------------------------------
-<pre># paypal.me/efxtv  🤝 
-                                            
-# 7503453371@ybl  🤝 
-                                          
-
-                             🤝 Any small amount will be appreciated🤝</pre>
