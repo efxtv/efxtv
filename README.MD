@@ -7,7 +7,7 @@ FACEBOOK : https://www.facebook.com/TechEFXTV
 
 INSTAGRA : https://www.instagram.com/efxtv2020/
 
-TELEGRAM : https://t.me/Efxtv
+TELEGRAM : https://t.me/efxtv
 
 GITHUB   : https://github.com/efxtv/
 
