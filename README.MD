@@ -7,6 +7,8 @@ PLEASE SUBSCRIBE ANC CONTACT US
 
 FACEBOOK : https://www.facebook.com/TechEFXTV
 
+Twitter  : https://twitter.com/tv_efx
+
 INSTAGRA : https://www.instagram.com/efxtv2020/
 
 TELEGRAM : https://t.me/efxtv
