@@ -31,7 +31,6 @@ PLEASE SUBSCRIBE ANC CONTACT US ( efxtv2022@ybl )
 </pre>
 
 ---------------------------------------
-<a href="#"><img src="https://raw.githubusercontent.com/efxtv/efxtv/master/assets/3eeb7756-68ca-41b6-86aa-00a4c575bed9.png.webp" title="Phonepay" alt="Phonepay" width="241" height="269"></a>
 <a href="https://paypal.me/efxtv"><img src="https://raw.githubusercontent.com/efxtv/efxtv/master/assets/PAYPAL.webp" title="Paypal" alt="Paypal" width="241" height="269"></a>
 <a href="https://www.buymeacoffee.com/efxtv"><img src="https://raw.githubusercontent.com/efxtv/efxtv/master/assets/COFE.webp" title="Paypal" alt="Paypal" width="241" height="269"></a>
 ---------------------------------------
