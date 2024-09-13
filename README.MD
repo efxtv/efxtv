@@ -1,5 +1,5 @@
 --------------------------------
-PLEASE SUBSCRIBE ANC CONTACT US ( efxtv2022@ybl )
+PLEASE SUBSCRIBE ANC CONTACT US
 --------------------------------
  
    <h1><a href="https://github.com/efxtv/EFX-Tv-Bookmarks" target="_blank">BOOKMARK EFX TV</a></h1>
@@ -31,6 +31,5 @@ PLEASE SUBSCRIBE ANC CONTACT US ( efxtv2022@ybl )
 </pre>
 
 ---------------------------------------
-<a href="https://paypal.me/efxtv"><img src="https://raw.githubusercontent.com/efxtv/efxtv/master/assets/PAYPAL.webp" title="Paypal" alt="Paypal" width="241" height="269"></a>
-<a href="https://www.buymeacoffee.com/efxtv"><img src="https://raw.githubusercontent.com/efxtv/efxtv/master/assets/COFE.webp" title="Paypal" alt="Paypal" width="241" height="269"></a>
+
 ---------------------------------------
