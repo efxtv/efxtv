@@ -28,6 +28,8 @@ PLEASE SUBSCRIBE ANC CONTACT US
 ▸ Backup   : https://www.youtube.com/c/Channe404
 
 ▸ Hindi    : https://www.youtube.com/channel/UCFN3nMftNABqOKBNRPeBXYA
+
+▸ Email    : EFXTv2021@gmail.com
 </pre>
 
 ---------------------------------------
