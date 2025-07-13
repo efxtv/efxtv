@@ -27,7 +27,6 @@ PLEASE SUBSCRIBE AND CONTACT US
 
 
 ---------------------------------------
-SUPPORT (USDT TRC20): TFKRY8tA89KqX1fqVUoUf1Nbnnkx187E5E
 
 BUYME A COFFEE: https://buymeacoffee.com/efxtv
 ---------------------------------------
