@@ -23,8 +23,6 @@ PLEASE SUBSCRIBE AND CONTACT US
 
 ▸ Youtube  : https://www.youtube.com/c/EFXTVE
 
-▸ Email    : efxtve@gmail.com
-
 
 ---------------------------------------
 
